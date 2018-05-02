@@ -50,9 +50,9 @@ Please do plan meetings a day to a week in advance with an agenda so I can be pr
 
 ## Hobbies and Interesting Facts  
 
-- Chess [I play mostly on Chess.com]
+- Chess (I play mostly on Chess.com)
 - Traveling
 - Hiking/Camping
-- Crafting and Sewing [Mostly toys and clothes for my son]
+- Crafting and Sewing (Mostly toys and clothes for my son)
 - Reading Sci-Fi/Fantasty
 - Cooking
