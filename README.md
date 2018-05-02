@@ -1,4 +1,4 @@
-# A Guide to Working with Charles
+# A Guide to Working with Michelle
 
 A guide to set expectations on how best to work with Michelle.
 
